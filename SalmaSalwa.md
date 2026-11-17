@@ -12,3 +12,4 @@
 - Step 1: Mash the avocados in a bowl.
 - Step 2: Mix in the onion, tomato, and cilantro.
 - Step 3: Add lime juice and salt, then stir well and serve!
+- Enjoy with chips!
