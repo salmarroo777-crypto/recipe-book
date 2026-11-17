@@ -12,6 +12,7 @@
 - green onion
 - grated ginger
 - lime
+- salt
 
 ## Instructions
 
